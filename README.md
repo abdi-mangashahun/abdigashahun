@@ -1,4 +1,4 @@
-# abdigashahun
+
 Hi there 👋, my name is Abdi Gashahun
 
 🙋‍♂️ About me
